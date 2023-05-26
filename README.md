@@ -1,4 +1,4 @@
-## Olá, eu me chamo Rayssa Schleich
+## Olá, eu me chamo Rayssa Schleich conheçam um pouquinho de mim...
 
 - 👶 Um baby em processo de aprendizagem
 - 🌱 estudando HTML5 + CSS3
